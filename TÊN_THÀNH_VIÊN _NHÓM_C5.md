@@ -3,3 +3,4 @@ Lê Hữu Hưng - 2A202600098
 Chu Minh Quân - 2A202600013
 Đỗ Minh Phúc - 2A202600039
 Nguyễn Minh Hiếu - 2A202600180
+Nguyễn Khánh Nam - 2A202600172
